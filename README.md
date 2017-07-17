@@ -1,0 +1,5 @@
+1. 我最想要的记忆魔法书, 作者: 多米尼克•奥布莱恩 (O'Berien.D.) ![Progress](http://progressed.io/bar/18)
+1. 时间简史, 作者: [英] 史蒂芬·霍金/许明贤, 吴忠超 ![Progress](http://progressed.io/bar/20)
+1. 康熙大帝, 作者: 二月河  ![Progress](http://progressed.io/bar/48)
+1. 巨婴国, 作者: 武志红 ![Progress](http://progressed.io/bar/10)
+1. 解忧杂货店, 作者: [日] 东野圭吾 ![Progress](http://progressed.io/bar/71)
